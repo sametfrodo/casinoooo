@@ -1,4 +1,4 @@
-# Casinoooo / new website
+# Casinoooo 
 
 _anticapitailst, collective café and bar, for social medicine_
 
